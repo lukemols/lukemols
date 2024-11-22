@@ -1,3 +1,5 @@
+![Beige Simple Elegant Personal LinkedIn Banner](https://github.com/user-attachments/assets/8e2d09ce-7943-4a37-ad00-a2415a830679)
+
 ## Hi there 👋
 
 Nice to e-meet you! I'm Luca and I'm a videogame developer!
